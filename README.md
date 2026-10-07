@@ -4,9 +4,9 @@
 
 <p align="center"> Hello, im X. but you may also call me null, v1, or swerve. im a minor. </p>
 <p align="center"> <img width="400" height="16" alt="tumblr_197856fbe164b1f9aa06777312ba878a_8e850e33_400" src="https://github.com/user-attachments/assets/72c7fba5-0019-4b6d-a0a2-1ae8c4862378" /> </p>
-<p align="center"> im a yumeshipper, fictkin, and robotkin (?). i get overstimulated easily or might not know what to type sometimes so please be patient. i may seem dry due to the fact i may act in character sometime, but i am FULL of whimsy i assure you. </p>
+<p align="center"> im a yumeshipper, fictkin, and robotkin (?). i get overstimulated easily or might not know what to type sometimes so please be patient. i may seem dry due to the fact i may act in character sometimes, but i am FULL of joy n whimsy i assure you. </p>
 <p align="center"> <img width="400" height="16" alt="tumblr_197856fbe164b1f9aa06777312ba878a_8e850e33_400" src="https://github.com/user-attachments/assets/72c7fba5-0019-4b6d-a0a2-1ae8c4862378" /> </p>
-<p align="center"> my main fandoms are megaman, transformers, ultrakill, and others ^_^ i also like music alot, mainly metal or breakcore. </p>
+<p align="center"> my main fandoms are megaman, BPJD, transformers, ultrakill, and others ^_^ i also like music alot, mainly metal or breakcore. some of my favourite bands r jinjer, linkin park, whitechapel, lamb of god, nd more ! </p>
 <p align="center"> <img width="400" height="16" alt="tumblr_197856fbe164b1f9aa06777312ba878a_8e850e33_400" src="https://github.com/user-attachments/assets/72c7fba5-0019-4b6d-a0a2-1ae8c4862378" /> </p>
 
 
