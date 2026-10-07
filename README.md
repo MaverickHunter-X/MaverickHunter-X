@@ -9,9 +9,11 @@
 <p align="center"> <img width="400" height="16" alt="tumblr_197856fbe164b1f9aa06777312ba878a_8e850e33_400" src="https://github.com/user-attachments/assets/72c7fba5-0019-4b6d-a0a2-1ae8c4862378" /> </p>
 <p align="center"> my main fandoms are megaman, BPJD, transformers, ultrakill, and others ^_^ i also like music alot, mainly metal or breakcore. some of my favourite bands r jinjer, linkin park, whitechapel, lamb of god, nd more ! </p>
 <p align="center"> <img width="400" height="16" alt="tumblr_197856fbe164b1f9aa06777312ba878a_8e850e33_400" src="https://github.com/user-attachments/assets/72c7fba5-0019-4b6d-a0a2-1ae8c4862378" /> </p>
-<p align="center"> @DWN-infinity is my partner Zero! (NOT romantical partner ok..,,, maybe in character because. couugh. yaoi,,but NOTHING like that outside of char)
+<p align="center"> 
+  
+  [@DWN-infinity](https://github.com/DWN-infinity)
+ is my partner Zero! (NOT romantical partner ok..,,, maybe in character because. couugh. yaoi,,but NOTHING like that outside of char)
 <p align="center"> <img width="400" height="16" alt="tumblr_197856fbe164b1f9aa06777312ba878a_8e850e33_400" src="https://github.com/user-attachments/assets/72c7fba5-0019-4b6d-a0a2-1ae8c4862378" /> </p>
-
 
 
 <p align="center"> <img width="160" height="76" alt="enter22222" src="https://github.com/user-attachments/assets/94118c3d-725f-4afe-80dc-7e14ad5d52ea" /> </p> 
